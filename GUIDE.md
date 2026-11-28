@@ -82,7 +82,7 @@ Clients don't chase you because they're worried about the work. They chase you b
 ## 3 ways forward
 
 - **Do it yourself:** get client feedback in order next with the free skill "Every Revision, One List": https://ekaistone.com/training
-- **With me:** a Strategy Call, $750, 60 minutes to map what your clients need to see: https://ekaistone.com/strategy-session
+- **With me:** a Strategy Session, $750, 60 minutes to map what your clients need to see: https://ekaistone.com/strategy-session
 - **Done for you:** the Jupiter Portal System, a client portal built for your business. By quote. Builds start with the $150 Discovery Call: https://ekaistone.com/portal-system
 
 Free to use. (c) Jupiter Revenue Systems. Don't resell.
